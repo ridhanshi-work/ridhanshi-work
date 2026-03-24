@@ -1,6 +1,6 @@
 # Hi, I'm Ridhanshi Kohli
 
- **3D / 2D Marketer | Designer | Brand Strategist**
+ **3D / 2D Marketer | Visual Designer | Creative Director**
 
 I am a 3D & 2D marketer who designs and manages marketing strategies for brands. With **6+ years of experience**, I have worked across **international markets**, helping businesses elevate their visual presence and create high-impact campaigns.
 
